@@ -1,1 +1,0 @@
-# test-technique-front-joel_francisco
